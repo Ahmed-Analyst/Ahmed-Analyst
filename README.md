@@ -1,4 +1,4 @@
-👋 Hi, I’m @Adnan Ahmedt, a passionate Business Analyst with experience in data analysis, financial modeling, and business operations.
+👋 Hi, I’m @Adnan Ahmed, a passionate Business Analyst with experience in data analysis, financial modeling, and business operations.
 
 👀 I’m interested in data-driven decision-making, financial analysis, and optimizing business processes to drive growth.
 
